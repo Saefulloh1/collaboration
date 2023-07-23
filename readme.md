@@ -1,1 +1,1 @@
-ReXgon And eSJe on the top!
+Rexgon and sj on the top
